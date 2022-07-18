@@ -1,5 +1,6 @@
 Tecnology 22👨‍💻
--Aprende a programar con cualquier lenguaje de programación.
+
+Aprende a programar con cualquier lenguaje de programación.
 🔥 ¿Te gustaría ganar en dólares trabajando desde cualquier parte del mundo?
 🔥Aprende desde hoy mismo a programar y consigue el trabajo de tus sueños !!
 👨‍💻Nunca pares de aprender.
