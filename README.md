@@ -1,16 +1,18 @@
-### Hi there 👋
-
-<!--
-**briantecnology11/briantecnology11** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Tecnology 22👨‍💻
+-Aprende a programar con cualquier lenguaje de programación.
+🔥 ¿Te gustaría ganar en dólares trabajando desde cualquier parte del mundo?
+🔥Aprende desde hoy mismo a programar y consigue el trabajo de tus sueños !!
+👨‍💻Nunca pares de aprender.
+Escríbeme por
+WhatsApp Business:
+https://wa.me/51913909745
+Facebook:
+https://www.facebook.com/tecnology22/?ref=pages_you_manage
+Instagram:
+https://www.instagram.com/brian_tecnology/
+Twitter:
+https://twitter.com/brian_tecnology
+GitHub:
+https://github.com/briantecnology11
+PayPal:
+PayPal.Me/briantecnology11
